@@ -1,2 +1,2 @@
-# Kuzey-marmara-otoyolu-ekici
+# Kuzey-marmara-otoyolu-cekici
 Kuzey marmara oto çekici
