@@ -1,6 +1,6 @@
 # Kuzey-marmara-otoyolu-cekici
 Kuzey marmara oto çekici
-en yakın sultanbeyli çekici
+en yakın çekici
 [Kuzey marmara oto çekici - Kuzey marmara oto çekici]( https://www.sultanbeylicekici.biz)
 Kuzey marmara oto çekici Hizmeti 10 dk içinde yanınızdayız
 
